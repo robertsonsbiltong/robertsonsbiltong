@@ -1,0 +1,49 @@
+It was the middle of a pandemic and there wasnt much to do. Many of you were in lockdown forced to spend time with your family or close freinds in what was deemed....the " Bubble". Me and and my mom were no different in the sence we could only really hang out with each other , but we were different in the sence we knew how to keep busy and how to start a business. Being the entreprenerial spirits that we were, we decided that cooking was the best way to keep our minds occupied.  To tell the real story of how a mom and son started a biltong shop and how I was able  to support my self year round with the best biltong in canada, we need to go back in time for a little trip :)
+
+I had suffered from depression on and off and about 6 months earlier was really struggling. Over the years I had found one cure for my depression that to most might seem strange but seemed to cure my depression over night. Psylocybin is the active compound in magic mushrooms and I had much experience with them over the years. Victoria B.C was a new city and unfortuantely making new freinds and going to festivals wasnt as easy as it once was hence being in lockdown and in fear of catching a deadly virus.  I was going through a dark phase in the midst of a global pandemic and was needing my old freind psylocibin to get me out of this deep fark hole I was in. 
+I didnt want to buy them off the internet so I decided I would learn to grow them in my closet..welp. I half succeeded in my endevaour. I had 2 tubs and one tub went mouldy and from the other one I burnt them to a crisp in my oven trying to dry them because I didnt have a dehydrator. 
+Christmas was around the corner so I decided I would ask for a dehydrator from santa clause. We spent Christmas in vancouver where my sister lived and she ended up getting me that dehydrator as a gift.. wooo. By that time my mushroom escapades had come to a moldy hault so off I went back to Victoria to hang out with mumsy cakes in our bubble. 
+The saga continues...
+It was a crisp winter day in victoria on fishermans warf where my mother owns a floating bed and breakfast... yes floating. Its a humungous float home where people from all over the world come to stay in private rooms with their own balconies that pertrude from the house over the water. 
+Mom has always been an entreprenuer and I was always  starting online business so that I could live the passive income life in thailand blah blah blah yea right.  Nothing had ever really caught on enough so that I could pay my bills so I was always in the mindset of finding a new business or seeing opportunities that I thoght could be profitable. Its a blessing a curse having this mindset because you can't turn it off but never the less I digress.
+So there I was in my moms kitchen with a dehydrator and nothing to do... 
+" Lets try making some biltong! "  I said to my mom.   
+" Ok! " she said 
+We went online and started finding all sorts of recipes and we combined a couple together we liked.  We had no idea what was going to happen and what kind of meat to use etc. We did some more reserch and found out the best biltong meat is high grade eye of round beef.
+So we made a list of all the biltong ingredients and off we went to get everything we needed! 
+When we got back to the house it was time to make our attempt at making some biltong beef jerky! I cut open the bag of eye of round and washed it off in the sink then put it on the cutting board quickly to realize I had no idea what I was doing . I knew that I wanted to have lots of fat on my biltong because that was the best part growing up. Me and my dad used to buy the big biltong strips and he would show me how to slice it with a hunting knife like him and buddies did back in South Africa. I always used to love bits with fat on it but there never seemed to be enough . I knew I wanted lots of fat so off I went..
+The eye of round piece has one side of the slab covered in fat so I got creative and came up with a way of cutting the strips so they had a long layer of fat running up the side.   We salted the slabs I cut, added a pepper and coriander mix and placed them in the dehyrdrator. 
+We didnt know how much time biltong would take so we used a couple guidelines from the inter web. We left it over night to dehydrate and when I came over to taste it I was very excited.      
+I used a sharp knife to cut a strip like my dad showed me and the fat was glistening in the sunlight and you could see the marbeling in the side of the biltong strip when you cut it into smaller peices. I had never seen biltong this jucie and soft before. I put it in my mouth and to my suprise it was literally the best biltong I had ever eaten.
+" We should sell this ! "   I exclaimed!
+" You think we could  " My mom said curiously 
+" Let's put it on facebook market place and see what happens " My entreprenuerial brain kicked in!
+I put it up on facebook market place and within minuted my phone started beeping and buzzing... Orders started coming in!
+People were coming to the house within 10 minutes of me posting with cash in hand.   I was extremely excited ! I high fived my mom after meeting a customer that was masked up and social distancing.  
+" I think we have a business on our hands " I said 
+Over the next few months we learned alot about the meat industry , about lab testing  and about getting approved by the Victoria Island health Authorty.  We needed to take the facebook stuff down because we werent making it in a commercially licenced kitchen.  Luckily I had a freind contact me because he was seeing all my facebook posts and he taught me that it needs to be tested for ph and shelf life etc and that we wouldnt be able to sell it to the public without these tests . Co incidentally he owned a lab testing facility up island and the stars seemed to be aligning for Robertson's Biltong! We paid for all the necessary tests and found a commercial kitchen close by and started making it for local people but that was small potatoes so I had another Idea...
+The plot thickens..
+
+I had been producing hip hop beats for over 15 years and had learned a ton about marketing, graphic design, facebook ads sales funnels etc so decided to use all those skills and poor them into our new business. I created the logo, the website, and started designing beautiful packaging that I would later order from china to save money. 
+After the website was looking great and the facebook tracking pixel was installed I knew I could run a campaign and track the return on my ad spend so I knew if the ad was profitable or not. 
+I created a facebook marketing campaign and went canada wide with it.. the results were staggering. 
+Before I knew it I had a 5x return on my adspend and we were selling 600$ worth of biltong a day to customers as far as the North West Territories and Ontario. We were overwhelmed in the kitchen and extremely happy with what was happening. Things were going great untill one day I got a message to my chat box on my website..
+
+The huge bummer..
+
+As it turns out someone , and when I say someone I mean a large competitor in Ontario noticed we were stealing their customers and found our website. They explained to me that what we were doing was illegal and that we werent allowd to sell across canada because we werent making it in a FEDERALLY licenced kitchen. 
+" What in the world is a federally licenced kitchen? " I said to my mom as she read more of the messages. 
+Turns out its a massive facility that has inspectors come in almost weekly and without a certification from the CFIA ( Canadian Food Inspection Agency ) stating it is being made at one of these facilities we could not ship outside of B.C .
+
+I was upset to say the least. Just when I thought I had found my way in life and finally started a succesfull biltong business the book was thrown at me .   Being the rebel that I am I decided to keep doing it .. I thought it was a tehnically , I didnt think it was that serious.. welp, when I started getting emails from federal agents telling us to stop  I knew it was time to obey the law . A stupid one at that I might add.  
+Our profits dropped 80% and things got tough. But when the going gets tough the tough get going. 
+" Lets do the Farmer's Markets " I said. 
+My mom was skeptical and to be ohnest so was I . I didnt think we were going to make anywhere close to what we were making but we had to fill the void of those sales that were no longer pooring in faster than we could handle. 
+We started doing the farmers market in James Bay and In Esquimalt and at first it was a bit of a bummer. We didnt have a good spot at either of the markets especially Esquimalt because we weren't in the " flow " of people who usually walk in a circle to see all the vendors. 
+I knew i needed to get creative again. I truly believed in my heart that this was the best beef jerky on planet earth and I wanted people to be able to sample it. At that time covid rules were just lifting enough that we were aloud to sample. People were 10 feet away from me at the market and they didnt know what biltong was so I came up with a nifty sales pitch that I knew would draw people in.  
+" Hey guys ! Do you want to try the best beef jerky on planet Earth?! "
+I would hear them say " well thats a bold statement " , " Well when you put it like that I have to try it now! "
+It was working it was causing curiosity and people started trying it and people started buying it!
+As it stands right now we are doing 3 markets a week in Victoria and Nanaimo and we cant seem to make enough biltong and people absolutely love it. It is becoming something that is changing my life because when people ask me what I do I can proudly say 
+I make the best biltong beef jerky on planet Earth
+Want to try some? Visit www.robertsonsbiltong.ca
